@@ -2,4 +2,5 @@
 the new hope
 gribu majas
 mana milaka stunda programmesana
-![image](https://github.com/user-attachments/assets/ee805b5f-fb71-4d25-85ae-3b7f724eff14)
+![C3C243B9-040C-4FDC-902E-17E81DB6E0F6](https://github.com/user-attachments/assets/0388ed15-d106-4dfb-839c-5ec2ac38dc4b)
+
